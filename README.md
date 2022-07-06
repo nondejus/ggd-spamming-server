@@ -1,2 +1,13 @@
-# ggd-spam-server
-+31 (0)6-20368340
+-------------------
+| ggd-spam-server |
+-------------------
+
+'+31 (0)6-20368340'
+
+
+https://en.wikipedia.org/wiki/Municipal_Health_Service
+
+https://en.wikipedia.org/wiki/Spamming
+
+https://en.wikipedia.org/wiki/Telephone
+
